@@ -1,7 +1,7 @@
 #Personal Branding Challenge
 
 ###1. Find someone with a strong personal brand which aligns with your ambitions
-Peter levers  https://levels.io/index/ creator of nomadlist
+Peter levers  https://levels.io/index/ creator of nomadlist.
 
 While I applaud Peter's Nomad lifestyle, and how he embraced it and in fact improved the options for other people to mirror him.
 
